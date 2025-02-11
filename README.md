@@ -2,8 +2,8 @@
 ## Computer Engineer Programmer, IT specialist from Russia
 
 ##### My real name is Vladimir Miroshnichenko, but I prefer Mira Yamana. This pseudonym 
-##### and nickname were chosen a long time ago and are my main signatures of works. I'm work
-##### Computer Engineer in school.
+##### and nickname m_i_r_o_17 were chosen a long time ago and are my main signatures of works. 
+##### I'm work Computer Engineer in school.
 
 
 ### I work with applications for: 
